@@ -1,0 +1,6 @@
+ARTÍCULO 2º.- Comuníquese al Poder Ejecutivo.-
+----------=*=*=*=----------
+Sala de Sesiones de la Cámara de Diputados, a los doce días del mes de octubre del año dos mil diecisiete.
+Mario Alberto Herrero Marcelo Jorge Lima
+Secretario Legislativo Vicegobernador de San Juan
+Cámara de Diputados Presidente Nato de la Cámara de Diputados
