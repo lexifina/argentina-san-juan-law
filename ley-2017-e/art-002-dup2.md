@@ -1,0 +1,1 @@
+ARTÍCULO 2°.- Una vez producida la vacancia de los actuales Defensores Adjuntos, del Secretario Letrado y del Contador Auditor, comenzarán a aplicarse los plazos de designación previstos en el Artículo 5º para esas funciones, con la expresa limitación a que se refiere el Artículo 11 anteúltimo párrafo de la Ley Nº 344-E.
