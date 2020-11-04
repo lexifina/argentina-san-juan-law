@@ -1,0 +1,1 @@
+ARTÍCULO 58TER.- Los contribuyentes del Régimen Simplificado Provincial del Impuesto sobre los Ingresos Brutos, que desarrollen las actividades detalladas en el artículo 58BIS, no tributan el Impuesto Fijo Mensual que les corresponda en los meses de Noviembre y Diciembre del año 2020."
