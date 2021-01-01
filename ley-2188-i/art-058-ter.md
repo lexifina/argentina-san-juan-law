@@ -1,0 +1,2 @@
+ARTÍCULO 58 TER.- Los contribuyentes del Régimen Simplificado Provincial del Impuesto sobre los Ingresos Brutos, que desarrollen las actividades detalladas en el artículo 58 BIS, no tributan el Impuesto Fijo Mensual que les corresponda en los meses de Enero y Febrero del año 2021.
+Para los restantes meses del año fiscal 2021, deben tributar el Impuesto Fijo Mensual que a tal fin disponga la Dirección General de Rentas, conforme la facultad establecida en la Ley Nº 151-I, artículo 131 Bis Inciso 2.
