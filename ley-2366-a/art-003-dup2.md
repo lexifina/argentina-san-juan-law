@@ -1,0 +1,1 @@
+ARTICULO 3°.- Facultase al Poder Ejecutivo para que, a través del Ministerio de Hacienda y Finanzas, realice las modificaciones presupuestarias que sean necesarias para la implementación de la presente ley.
