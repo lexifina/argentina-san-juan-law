@@ -1,0 +1,1 @@
+ARTÍCULO 1°- En virtud de la Ley N° 783-P, que declara en su artículo 6° la emergencia social, se suspende desde el 1 de enero de 2025 hasta el 31 de diciembre de 2025, los términos procesales de todos los juicios que tengan por objeto la ejecución de una hipoteca que no haya sido incluida en el fideicomiso establecido por la Ley Nacional N° 25798.
