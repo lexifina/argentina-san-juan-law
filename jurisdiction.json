@@ -1,0 +1,11 @@
+{
+  "path": "ar-j",
+  "code": "AR-J",
+  "name": "San Juan",
+  "level": "province",
+  "parent": "ar",
+  "repo": "https://github.com/lexifina/argentina-san-juan-law",
+  "build": "built: constitution, codes and laws (630 norms, 630 versions) from https://digestosanjuan.gob.ar/",
+  "language": "es",
+  "sources": 1
+}
